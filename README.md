@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **pedro.marcello.contact@gmail.com**
 
-- 📄 Saiba mais sobre minhas experiências em [www.linkedin.com/in/pedro-marcello-dev]<a href="https://linkedin.com/in/pedro-marcello-dev" target="blank">
+- 📄 Saiba mais sobre minhas experiências em www.linkedin.com/in/pedro-marcello-dev<a href="https://linkedin.com/in/pedro-marcello-dev" target="blank">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
